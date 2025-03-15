@@ -1,7 +1,7 @@
 # ... y comenzamos!!! 
 
 
-He tardado en empezar, pero con el primer paso se empieza el camino, mucha gente me ha animado por el camino. 
+He tardado en empezar, pero con el primer paso se empieza el camino y mucha gente me ha animado por el camino. 
 Ya no es por mi, por toda esa gente que me ha apoyado.
 
 
